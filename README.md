@@ -4,7 +4,7 @@ if u find this, it means its a secret thing. here you wil find spells 🪄, ench
 ![Image](https://github.com/user-attachments/assets/8be6dd00-8272-4dab-b16c-24f593b8c5c7)
              
              The Gods and Godesses, pronounced a spell upon wind control. They made an Enchanted Gem hidden in he mountains. 
-             30 BC / AT GREECE'S BORDER TO TURKEY
+             30 BC / AT GREECE'S BORDER TO TURKEY, NEXT TO ISTANBUL.
 
    movements
    - swing up
