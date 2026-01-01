@@ -15,4 +15,6 @@ if u find this, it means its a secret thing. here you wil find spells 🪄, ench
    - swing right / twirl foot backward
    - dash 1 / dashing wand blow
    - dash 2 / wind attack on stem
-   - dash 3 / defense method on kormen
+   - dash 3 / defense method on hand
+
+     These movements and actions will work with the enemy. 
