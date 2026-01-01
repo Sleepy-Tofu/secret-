@@ -5,10 +5,10 @@ if u find this, it means its a secret thing. here you wil find spells 🪄, ench
              
      ' . .        .The Gods and Godesses, pronounced a spell upon wind control. They made an
              Enchanted Gem hidden in he mountains. 
-             30 BC / AT GREECE'S BORDER TO TURKEY, NEXT TO ISTANBUL.      . . ' 
+             30 BC / AT GREECE'S BORDER TO TURKEY, NEXT TO ISTANBUL.     . . ' 
 
    
-   # movements. '>ᰔ< & ✧ o ✧.*  actions. ୧ ‧₊˚ 🍵☘️🔮 ⋅, 
+   # movements. '>ᰔ< & ✧ o ✧.*  actions. ୧ ‧₊˚ 🍵☘️🔮 ⋅, OF 01.01.26
    - swing up. / swing back flip down
    - swing down / swing back flip up
    - swing left /  twirl foot foward
