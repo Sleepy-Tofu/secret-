@@ -3,18 +3,4 @@ if u find this, it means its a secret thing. here you wil find spells 🪄, ench
 ![Image](https://github.com/user-attachments/assets/370ea2d5-f41e-43a5-88e8-be0fed786e33)
 ![Image](https://github.com/user-attachments/assets/8be6dd00-8272-4dab-b16c-24f593b8c5c7)
              
-     ' . .        .The Gods and Godesses, pronounced a spell upon wind control. They made an
-             Enchanted Gem hidden in he mountains. 
-             30 BC / AT GREECE'S BORDER TO TURKEY, NEXT TO ISTANBUL.     . . ' 
-
-   
-   # movements. '>ᰔ< & ✧ o ✧.*  actions. ୧ ‧₊˚ 🍵☘️🔮 ⋅, OF 01.01.26
-   - swing up. / swing back flip down
-   - swing down / swing back flip up
-   - swing left /  twirl foot foward
-   - swing right / twirl foot backward
-   - dash 1 / dashing wand blow
-   - dash 2 / wind attack on stem
-   - dash 3 / defense method on hand
-
-     These movements and actions will work with the enemy. 
+  
